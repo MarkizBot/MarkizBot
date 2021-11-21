@@ -1,1 +1,1 @@
-![robot](https://media0.giphy.com/media/26CaLWA2dcqz6hS4U/giphy.gif?cid=ecf05e47ay6r9efytd6uz0lfsi6y7pe429ex1npx5rrqfws8&rid=giphy.gif)
+![robot](https://hips.hearstapps.com/hmg-prod.s3.amazonaws.com/images/sep-24-2019-11-37-27-1569339480.gif)
